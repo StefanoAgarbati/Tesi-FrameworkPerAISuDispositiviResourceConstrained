@@ -1,4 +1,4 @@
-Update 0 - 6 Ottobre 2025
+**Update 0 - 6 Ottobre 2025**
 
 Ho letto alcune delle fonti da voi indicate per acquisire un po' di familiarità con l'argomento oggetto
 della tesina. Alcune le ho lette solo parzialmente, per ora, a causa della loro densità e lunghezza.
